@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @voldynguyen
-- 👀 I’m interested in book, vinyl, casettle & retro game
+- 👀 I’m interested in book, vinyl, cassette & retro game
 - 💞️ I’m looking to collaborate develop GB retro game
 - 😄 Pronouns: Voldy
 - ⚡ Fun fact: ...
